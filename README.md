@@ -1,2 +1,1 @@
-Mario Party
-Mario Party
+Just one Mario Party
